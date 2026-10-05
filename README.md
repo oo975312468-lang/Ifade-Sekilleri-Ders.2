@@ -1,0 +1,1 @@
+# Ifade-Sekilleri-Ders.2
